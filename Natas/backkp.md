@@ -1,0 +1,2 @@
+The password for natas1 is 0nzCigAq7t2iALyvU9xcHlYN4MlkIwlq
+The password for natas2 is TguMNxKo1DSa1tujBLuZJnDUlCcUAPlI
